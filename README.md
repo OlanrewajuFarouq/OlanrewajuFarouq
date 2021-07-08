@@ -2,7 +2,7 @@
 - 👀 I’m interested in writing,engineering,and animation creation. 
 - 🌱 I’m currently learning at Command Day Secondary school Oshodi,Lagos  Nigeria.
 - 💞️ I’m looking to collaborate on comic creation 
-- 📫 How to reach me @olanrewajukunle73@gmail.com 
+- 📫 How to reach me @olanrewajufarouq07@gmail.com 
 
 <!---
 OlanrewajuFarouq/OlanrewajuFarouq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
